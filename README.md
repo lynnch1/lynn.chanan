@@ -1,1 +1,1 @@
-# Lynn.Chanan
+# lynn.chanan
